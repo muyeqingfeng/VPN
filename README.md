@@ -18,3 +18,5 @@
 ## 三毛机场<https://www.三毛机场.xyz/#/plan>  
 
 ## 一分机场<https://xn--4gqx1hgtfdmt.com/#/login>
+
+## 稳连云<https://稳连云.com/#/plan>
