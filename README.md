@@ -28,3 +28,17 @@
 ## 一元机场<https://www.yiyuanjichang.com/#/register>
 
 ## 飞机云<https://feijicloud.com/>
+
+## 悠兔<https://link1.yootu.shop/register?aff=GBl5dvoh>
+
+## 贝贝云<https://beibeicloud.shop/#/register?code=nIZVvQr5>
+
+## v4speed<https://v4web20240126.v4speed.xyz/#/register?code=6bYp0tpY>
+
+## 肥猫<https://fccfweb20240126.fatcatcf.com/#/register?code=HbQKJawX>
+
+## cyberguard<https://cyberguard.best/#/register?code=EZAP4XL1>
+
+## 龙猫云<https://lmspeedapp.com/#/register?code=1YZa193W>
+
+## wgetcloud<https://irj2tbj9wuzycdzw32rzm.wgetcloud.org/register?code=O3eIYb>
