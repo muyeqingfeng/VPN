@@ -15,7 +15,7 @@
 
 ## V2云<https://www.srives.info/#/plan>
 
-## 三毛机场<https://www.三毛机场.xyz/#/plan>  
+## 三毛机场<https://smjcdh.com/#/dashboard>  
 
 ## 一分机场<https://xn--4gqx1hgtfdmt.com/#/login>
 
