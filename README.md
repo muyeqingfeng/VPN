@@ -9,7 +9,6 @@
 
 ## XMRth<https://xmrth.net>    **只有香港节点，无法使用chatGPT**  
 
-## 翻墙机场<https://翻墙机场.icu/#/plan>  
 
 ## 星河云<https://www.srives.info/#/plan>   
 
