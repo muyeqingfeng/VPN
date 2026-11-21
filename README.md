@@ -43,3 +43,5 @@
 ## wgetcloud<https://irj2tbj9wuzycdzw32rzm.wgetcloud.org/register?code=O3eIYb>
 
 ## 白嫖机场<https://yes3.xn--mesv7f5toqlp.biz/console/plan>
+
+## 月兔VPN（Tsuki）<https://buddahs-temptation.win/tsuki>
